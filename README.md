@@ -1,1 +1,0 @@
-# maguro1kan.github.io
